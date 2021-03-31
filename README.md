@@ -1,1 +1,1 @@
-https://aliashkov.github.io/agro-tourism.github.io/
+https://aliashkov.github.io/agro-tourism/
